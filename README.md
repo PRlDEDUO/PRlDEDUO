@@ -1,4 +1,2 @@
 wooaoahhwooahahoo rmk soon wooaoaoaahh
-![alt tag](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/d689287b512e46a8baf3fdd922c6ebe8/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=9TWEijg67QM_Xe2hWkQFxKpYLYb4cVzdOqEzOeROOiI%3D&token-time=1779062400)
-
-me and mypartner btw
+![alt tag](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/834ff3f173a94e4abdd63bd3a26f4473/eyJxIjoxMDAsIndlYnAiOjB9/1.png?token-hash=jpz9_eL5lJ886VwcfEpteC92leI_GlkwPzKWNONQc30%3D&token-time=1779062400)
